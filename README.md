@@ -1,6 +1,7 @@
 Juan A. Romero
 
 PhD Student
-UC Berkeley Dept. of Mechanical Engineering
+MIT Dept. of Mechanical Engineering
 
-MIT Class of 2018
+MS | Mechanical Engineering | UC Berkeley | 2022
+BS | Mechanical Engineering | MIT | 2018
