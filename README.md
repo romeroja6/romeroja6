@@ -1,6 +1,7 @@
 Juan A. Romero
 
-PhD Student
+PhD Candidate
+K. Lisa Yang GEAR Center
 MIT Dept. of Mechanical Engineering
 
 MS | Mechanical Engineering | UC Berkeley | 2022
